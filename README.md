@@ -1,2 +1,2 @@
 # Summer-Solstice-2021
-Summer Solstice 2021 Live Sunset Show
+https://adoryk12.github.io/Summer-Solstice-2021/
